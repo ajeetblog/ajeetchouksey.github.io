@@ -1,4 +1,4 @@
 
 ## Go To
 
-[http://www.visualstudiogeeks.com](http://www.visualstudiogeeks.com)
+[http://www.azure365.co.in](http://www.azure365.co.in)
